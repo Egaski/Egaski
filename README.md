@@ -1,5 +1,5 @@
 
-- 💞️ I’m interested in xxx 💋💋💋
+- 💞️ I’m interested in making money 
 - 📫 How to reach me ... WhatsApp +2349026096366
 
 <!---
